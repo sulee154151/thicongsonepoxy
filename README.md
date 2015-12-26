@@ -5,7 +5,7 @@ Có rất nhiều công nghệ sơn sàn được sử dụng hiện nay nhưng 
 <a href="http://sonepoxy.suu.vn/cung-cap-va-thi-cong-son-epoxy-hang-dau.html">thi cong son epoxy</a> tự dan phẳng
 Mặt sàn thi công sơn epoxy tự san phẳng
 Loại sơn này chứa đầy đủ những đặc điểm, tính ưu việt của dòng sản phẩm epoxy. Ngoài ra nó cũng có những đặc tính riêng biệt mà sản phẩm khác không thể có được.
-Nhưng trước hết để hiểu hơn về dòng sơn này chúng tôi cung cấp đến những công dụng nổi bật nhất để bạn đọc nắm được: Sơn epoxy tự san phẳng có khả năng chống chịu lực cao, có thể chống lại sự mài mòn và bảo vệ nền bê tông hiệu quả. Không chỉ có vậy thi công sơn epoxy tự phẳng cho sàn nhà xưởng còn có thể kháng bụi bẩn, dầu, nước, và lau chùi dễ dàng những vết bẩn để lại trên sàn trong quá trình sản xuất.
+Nhưng trước hết để hiểu hơn về dòng <a href="http://sonepoxy.suu.vn">son san epoxy</a> này chúng tôi cung cấp đến những công dụng nổi bật nhất để bạn đọc nắm được: Sơn epoxy tự san phẳng có khả năng chống chịu lực cao, có thể chống lại sự mài mòn và bảo vệ nền bê tông hiệu quả. Không chỉ có vậy thi công sơn epoxy tự phẳng cho sàn nhà xưởng còn có thể kháng bụi bẩn, dầu, nước, và lau chùi dễ dàng những vết bẩn để lại trên sàn trong quá trình sản xuất.
  
 Thi công sơn epoxy tự phẳng
 Dịch vụ thi công <a href="http://sonepoxy.suu.vn">son epoxy</a> tự phẳng của Tín Phát hàng đầu Việt Nam
